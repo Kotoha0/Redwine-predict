@@ -1,1 +1,6 @@
-# Redwine-predict
+![download (2)](https://github.com/user-attachments/assets/837a72a6-8aa9-4ecc-b27c-774284b5735e)
+![download (3)](https://github.com/user-attachments/assets/bf4c4c3b-5034-48b4-9144-426905ad2fa1)
+![download (4)](https://github.com/user-attachments/assets/2cdb31a9-de7b-468b-87c8-cc69d760fe5a)
+![download (5)](https://github.com/user-attachments/assets/62dc57ed-73a6-45f5-88bb-f52e687c80af)
+![download](https://github.com/user-attachments/assets/010ccb46-22af-4d95-a0b1-36c340a9e249)
+![download (1)](https://github.com/user-attachments/assets/f8ed3b90-5746-42b2-9408-3a8e86e83e79)
